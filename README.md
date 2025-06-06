@@ -1,1 +1,1 @@
-(https://jaolucas1234.github.io/)
+https://jaolucas1234.github.io/
